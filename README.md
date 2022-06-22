@@ -1,2 +1,0 @@
-# 6clicks-opstraining
- 
